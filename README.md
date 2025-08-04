@@ -1,1 +1,0 @@
-# Cost-Efficetive-AI-MSME-s
